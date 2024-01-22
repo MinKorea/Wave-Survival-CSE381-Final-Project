@@ -1,4 +1,4 @@
-# You can download and play the game by this link:
+# You can download and play the game by this link(4.7G):
 
 https://drive.google.com/file/d/1gNfdKXqFsBRQKqyfN7MDjELey4zaQX9B/view?usp=sharing
 
